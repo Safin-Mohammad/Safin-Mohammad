@@ -3,6 +3,8 @@
 
 Email Me 👉 ✉️ **safin.mohammadhh1@gmail.com** For Collaboration/Project or Anything Else. 😊😊
 
+<img align="right" alt="coding" width="400" src="https://i.gifer.com/6tXM.gif">
+
 ## 🔗 I am a Student. 😊😊
 
 Stay updated with the latest tutorials and projects by  following on Facebook and Telegram.
