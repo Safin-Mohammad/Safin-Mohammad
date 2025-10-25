@@ -1,10 +1,11 @@
 ![logo](https://github.com/Safin-Mohammad/Safin-Mohammad/blob/main/IMG_20251025_124744_830.jpg)
 
 
-# 💫 Hi 👋, I'm Safin Mohammad
+<h1 align="center">  💫 Hi 👋, I'm Safin Mohammad</h1>
+
 **A passionate Carding Expart|| Binning Expart || Social Media Expart || From Bangladesh**
 
-Email Me 👉 ✉️ **safin.mohammadhh1@gmail.com** For Collaboration/Project or Anything Else. 😊😊
+ Me 👉 ✉️ **safin.mohammadhh1@gmail.com** For Collaboration/Project or Anything Else. 😊😊 
 
 <img align="right" alt="coding" width="400" src="https://i.gifer.com/6tXM.gif">
 
